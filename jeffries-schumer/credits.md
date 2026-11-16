@@ -60,11 +60,16 @@ Credits for the footage, photos and music in the video. Sources for the claims a
 - Shealeah Craighead, Public domain, via Wikimedia Commons <https://commons.wikimedia.org/wiki/File:Donald_Trump_official_portrait_(cropped).jpg>
 - Composite by the author; photos: U.S. Senate Photographic Studio (PD), John Harrington (PD), USA TODAY
 - Official presidential portraits (Nixon: US Army/DoD; Ford: David Hume Kennerly; Reagan: Michael Evans; G.H.W. Bush: David Valdez; G.W. Bush: Eric Draper), public domain, via Wikimedia Commons <https://commons.wikimedia.org/wiki/Category:Official_portraits_of_presidents_of_the_United_States>
+- "House Committee on the Judiciary Hearing (55130231962)" by DHSgov, Public domain, via Wikimedia Commons <https://commons.wikimedia.org/wiki/File:House_Committee_on_the_Judiciary_Hearing_(55130231962).jpg>
+- "House Committee on the Judiciary Hearing (55131310293)" by DHSgov, Public domain, via Wikimedia Commons <https://commons.wikimedia.org/wiki/File:House_Committee_on_the_Judiciary_Hearing_(55131310293).jpg>
+- "House Committee on the Judiciary Hearing (55131359644)" by DHSgov, Public domain, via Wikimedia Commons <https://commons.wikimedia.org/wiki/File:House_Committee_on_the_Judiciary_Hearing_(55131359644).jpg>
+- "Congressman Thomas Massie on Epstein Files Transparency Act Release Deadline - 12-18-2025" by Thomas Massie, Public domain, via Wikimedia Commons <https://commons.wikimedia.org/wiki/File:Congressman_Thomas_Massie_on_Epstein_Files_Transparency_Act_Release_Deadline_-_12-18-2025.png>
+- "Thomas Massie - 119th Congress" by U.S. Congress, Public domain, via Wikimedia Commons <https://commons.wikimedia.org/wiki/File:Thomas_Massie_-_119th_Congress.jpg>
 - The White House, Public domain, via Wikimedia Commons <https://commons.wikimedia.org/wiki/File:Stephen_Miller_July_2025.jpg>
 - U.S. Department of Defense, Public domain, via Wikimedia Commons <https://commons.wikimedia.org/wiki/File:2025_Stephen_Miller_(cropped).jpg>
 - U.S. Senate, Public domain, via Wikimedia Commons <https://commons.wikimedia.org/wiki/File:Democratic_senators-elect_meet_with_Chuck_Schumer_in_November_2026.jpg>
 - "Chuck Schumer at Stop the SAVE Act rally Washington DC 2026-03-18 11-22-23 1" by G. Edward Johnson, CC BY 4.0, via Wikimedia Commons (cropped) <https://commons.wikimedia.org/wiki/File:Chuck_Schumer_at_Stop_the_SAVE_Act_rally_Washington_DC_2026-03-18_11-22-23_1.jpg>
-- "Chuck Schumer at Stop the SAVE Act rally Washington DC 2026-03-18 11-18-52 1" by G. Edward Johnson, CC BY 4.0, via Wikimedia Commons (cropped) <https://commons.wikimedia.org/wiki/File:Chuck_Schumer_at_Stop_the_SAVE_Act_rally_Washington_DC_2026-03-18_11-18-52_1.jpg>
+- "Ambassador Nicholas Burns and Majority Leader Chuck Schumer meeting in DC" by Ambassador Nicholas Burns, Public domain, via Wikimedia Commons <https://commons.wikimedia.org/wiki/File:Ambassador_Nicholas_Burns_and_Majority_Leader_Chuck_Schumer_meeting_in_DC.jpg>
 - U.S. House of Representatives, Public domain, via Wikimedia Commons <https://commons.wikimedia.org/wiki/File:Rep-Hakeem-Jeffries-Official-Portrait.jpg>
 - "2026-10-12 White House from the Washington Monument 11-26-22" by G. Edward Johnson, CC BY 4.0, via Wikimedia Commons (cropped) <https://commons.wikimedia.org/wiki/File:2026-10-12_White_House_from_the_Washington_Monument_11-26-22.jpg>
 - The White House, Public domain, via Wikimedia Commons <https://commons.wikimedia.org/wiki/File:President_Donald_J_Trump_delivers_remarks_at_the_Lincoln_Memorial_Reflection_Pool,_November_2,_2026_(P20261102JB-0208).jpg>
