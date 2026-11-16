@@ -109,3 +109,7 @@ Credits for the footage, photos and music in the video. Sources for the claims a
 - 'Society if' meme (imgflip) <https://imgflip.com/memetemplate/85934123/Futuristic-Utopia>
 
 News footage, headlines and photos are used in short excerpts for commentary and criticism.
+
+## Thumbnail
+
+- Thumbnail photos: Alex Wong / Getty Images; U.S. Senate / JCCIC (public domain).
